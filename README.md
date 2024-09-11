@@ -2,7 +2,7 @@
 - 👀 I’m interested in making a autoclicker
 - 🌱 I’m currently learning nothing about it
 - 💞️ I’m looking to collaborate with somebody who can help me
-- 📫 you cant reach me
+- 📫 I dont know how you can reach me
 - 😄 Pronouns: I dont have one
 - ⚡ Fun fact: I dont have one
 
